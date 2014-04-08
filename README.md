@@ -3,6 +3,16 @@ BookinProgress
 
 阅读进度
 
+2014-04-08  
+
+![](http://cl.ly/image/2C2Z3D0i1q1i/%E8%AF%BB%E4%B9%A6%E8%BF%9B%E5%BA%A62.png)
+
+
+上次有个地方算错了，导致露珠都以为快速阅读练成了呢   
+修正后知道真相的我眼里掉下来  
+
+---
+
 
 ![](http://cl.ly/image/25071q2s1r2v/%E8%AF%BB%E4%B9%A6%E8%BF%9B%E5%BA%A6.png)
 
