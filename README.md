@@ -3,7 +3,10 @@ BookinProgress
 
 阅读进度
 
-2014-04-08  
+##2014-07-09  
+![](http://cl.ly/image/1u3U3a3o3t04/BookinProgress-2014-07-09.png)
+
+##2014-04-08  
 
 ![](http://cl.ly/image/2C2Z3D0i1q1i/%E8%AF%BB%E4%B9%A6%E8%BF%9B%E5%BA%A62.png)
 
